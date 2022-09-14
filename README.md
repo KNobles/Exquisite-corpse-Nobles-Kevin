@@ -14,3 +14,5 @@ I didn't read the story but it looked funny, thanks for this story anyway
 source --> NJUGUNA CARLTON
 
 source: [https://thoughtcatalog.com/january-nelson/2018/06/funny-stories/]
+
+** Without Fault! **
