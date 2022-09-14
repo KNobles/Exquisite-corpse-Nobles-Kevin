@@ -10,5 +10,7 @@ Once we got to him I panicked and just had to blurt out “We’ve come to hello
 
 Never gonna talk to them again.
 
+I didn't read the story but it looked funny, thanks for this story anyway
+source --> NJUGUNA CARLTON
 
 source: [https://thoughtcatalog.com/january-nelson/2018/06/funny-stories/]
