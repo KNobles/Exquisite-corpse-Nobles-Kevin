@@ -1,5 +1,5 @@
 **Socially awkward fail** 
-
+aaaaa
 So one day I was walking around, just chilling with my friends when I see this guy reading a book. He was new there but the book was a book I read and LOVED.
 
 So naturally I approach this boy hoping to make a new friend and bond over the series. Being the socially awkward fail I am I planned out ahead of time what I’d say: “Hey, we’ve [my friends and I] wanted to come over to say hi cause I say you were reading a book I liked and I hope we can talk more in the future.”
